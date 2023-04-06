@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteRD8972
